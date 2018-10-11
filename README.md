@@ -4,6 +4,7 @@
 
 http://www.mat.ufmg.br/~espec/Monografias_Noturna/Monografia_PriscillaAlves.pdf
 
+https://af25686a-a-62cb3a1a-s-sites.googlegroups.com/site/rsilvaice/ensino/disciplina2/Exercicios1.pdf?attachauth=ANoY7cpLnnDDQL45CkQmrHHm46Mdlid-H5IFdBrjvIPv8u9pyqZuvTngYYLhTiLtx5st1aePvDMZugWxcA4GRpjD-dbysNZ9UkGe91koXeufeLQ153KDT4RbQbrKtEBxHHEg-uzfa5Uu44dnjytFnSqXb8UY430qVczR7JpamVz4GoNFQDH4Njoi4R0ScnwfZ-3CpJT0oI9XCInMpWlFdo45IISLCAeF3QPBLScwyenNHYsRUXx6fnA%3D&attredirects=0
 
 https://www.dropbox.com/sh/u3cuofp5e8isld6/AAAZPhLnreKSrwtLUNYLgeq3a?dl=0
 
